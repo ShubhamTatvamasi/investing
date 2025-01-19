@@ -10,8 +10,6 @@ When buying a phone, it’s best to stick to a budget that aligns with your inco
      - Annual Income: ₹12,00,000.  
      - Recommended Budget: ₹12,000 to ₹24,000.
 
-2. **Avoid EMI for Phones**: Since phones depreciate quickly, it’s better to buy them outright rather than paying EMIs with added interest.
-
 ---
 
 ### Tips for Choosing a Phone:  
